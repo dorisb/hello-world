@@ -1,3 +1,3 @@
 # hello-world
 hi ,all guys
-im new here,hope to make progress 
+im  doris .im a freshman here,hope to learn more about technology.
